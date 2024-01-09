@@ -1,9 +1,10 @@
 **Defeating Games for Charity**
 
-Jan 27-28
+Jan 27-28, 2024
 
-24+ hours of playing/beating classic game serieses to raise money for the [Video Game History Foundation](https://gamehistory.org/),\
-organized by the [Dev Game Club](https://www.devgameclub.com/) community
+24+ hours of playing/beating classic game serieses\
+raising money for the [Video Game History Foundation](https://gamehistory.org/)\
+organized by the [Dev Game Club](https://www.devgameclub.com/) community on [Discord](https://discord.com/invite/dTQbcscbKx)
 
 _Featuring_\
 [Artimage](twitch.tv/artimage84) - Final Fantasy IX\
