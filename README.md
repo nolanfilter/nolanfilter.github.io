@@ -7,7 +7,7 @@ Benefitting the [Video Game History Foundation](https://gamehistory.org/)
 _Featuring_\
 [Artimage](twitch.tv/artimage84)\
 Belmont\
-BVron\
+[BVron](https://www.twitch.tv/bvronmusic)\
 [CalamityNolan](https://www.twitch.tv/calamitynolan)\
 [Kaeon](https://www.twitch.tv/kaeon)\
 [Kyleanderror13](https://www.twitch.tv/kyleanderror13)\
