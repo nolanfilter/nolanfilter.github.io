@@ -13,4 +13,6 @@ Belmont\
 [Kyleanderror13](https://www.twitch.tv/kyleanderror13)\
 [LostLake86](https://www.twitch.tv/lostlake86)\
 [MysteryDip](https://www.twitch.tv/mystery_dip)\
-[TimLongoJr](https://www.twitch.tv/timlongojr)\
+[TimLongoJr](https://www.twitch.tv/timlongojr)
+
+More info coming soon!
