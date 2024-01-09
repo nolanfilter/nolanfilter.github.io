@@ -2,17 +2,18 @@
 
 Jan 27-28
 
-Benefitting the [Video Game History Foundation](https://gamehistory.org/)
+24+ hours of playing/beating classic game serieses to raise money for the [Video Game History Foundation](https://gamehistory.org/),\
+organized by the [Dev Game Club](https://www.devgameclub.com/) community
 
 _Featuring_\
-[Artimage](twitch.tv/artimage84)\
-Belmont\
-[BVron](https://www.twitch.tv/bvronmusic)\
-[CalamityNolan](https://www.twitch.tv/calamitynolan)\
-[Kaeon](https://www.twitch.tv/kaeon)\
-[Kyleanderror13](https://www.twitch.tv/kyleanderror13)\
-[LostLake86](https://www.twitch.tv/lostlake86)\
-[MysteryDip](https://www.twitch.tv/mystery_dip)\
-[TimLongoJr](https://www.twitch.tv/timlongojr)
+[Artimage](twitch.tv/artimage84) - Final Fantasy IX\
+Belmont - Mega Man X\
+[BVron](https://www.twitch.tv/bvronmusic) - Grand Theft Auto III\
+[CalamityNolan](https://www.twitch.tv/calamitynolan) - Devil May Cry, Resident Evil Village\
+[Kaeon](https://www.twitch.tv/kaeon) - Mega Man 2, The Legend of Zelda, Super Mario Bros.\
+[Kyleanderror13](https://www.twitch.tv/kyleanderror13) - Dark Souls\
+[LostLake86](https://www.twitch.tv/lostlake86) - Far Cry 2\
+[MysteryDip](https://www.twitch.tv/mystery_dip) - Rogue\
+[TimLongoJr](https://www.twitch.tv/timlongojr) - XCOM
 
 More info coming soon!
