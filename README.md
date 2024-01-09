@@ -7,8 +7,8 @@ raising money for the [Video Game History Foundation](https://gamehistory.org/)\
 organized by the [Dev Game Club](https://www.devgameclub.com/) community on [Discord](https://discord.com/invite/dTQbcscbKx)
 
 _Featuring_\
-[Artimage](twitch.tv/artimage84) - Final Fantasy IX\
-Belmont - Mega Man X\
+[Artimage](https://www.twitch.tv/artimage84) - Final Fantasy IX\
+[Belmont](https://www.twitch.tv/rirchterbelmont) - Mega Man X\
 [BVron](https://www.twitch.tv/bvronmusic) - Grand Theft Auto III\
 [CalamityNolan](https://www.twitch.tv/calamitynolan) - Devil May Cry, Resident Evil Village\
 [Kaeon](https://www.twitch.tv/kaeon) - Mega Man 2, The Legend of Zelda, Super Mario Bros.\
