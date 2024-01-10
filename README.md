@@ -13,7 +13,7 @@ _Featuring_\
 [CalamityNolan](https://www.twitch.tv/calamitynolan) - Devil May Cry, Resident Evil Village\
 [Kaeon](https://www.twitch.tv/kaeon) - Mega Man 2, The Legend of Zelda, Super Mario Bros.\
 [Kyleanderror13](https://www.twitch.tv/kyleanderror13) - Dark Souls\
-[LostLake86](https://www.twitch.tv/lostlake86) - Far Cry 2\
+[LostLake86](https://www.twitch.tv/lostlake86) - Dead Space, Far Cry 2\
 [MysteryDip](https://www.twitch.tv/mystery_dip) - Rogue\
 [TimLongoJr](https://www.twitch.tv/timlongojr) - XCOM
 
